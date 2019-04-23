@@ -1,3 +1,3 @@
-Marjan Šarec urban je kralj
+Marjan Šarec 
 Ivan Vidav
 Matija Pretnar
