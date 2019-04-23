@@ -1,3 +1,3 @@
-Jurij Vega
+Borut Pahor
 Ivan Vidav
 Matija Pretnar
